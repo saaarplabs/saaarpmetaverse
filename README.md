@@ -23,3 +23,13 @@ By the COMMUNITY,
 For the COMMUNITY.
 #communityfirst #community #socialmedia #network #building
 ![image](https://github.com/saaarpmetaverse/social-media-posts/blob/main/6.jpg)
+
+As a global community, our voice is a privilege we must exercise to create our world the way we want it. SAAARP METAVERSE is an expression of our global DECENTRALIZED COMMUNITY CITIZENRY, HUMANITY and RESPONSIBILITY for every Life on the Planet. Let us make it happen TOGETHER. # #community #saaarp #metaverse #citizens
+![image](https://github.com/saaarpmetaverse/social-media-posts/blob/main/8.jpg)
+
+JOIN SAAARP METAVERSE DISCORD NOW!
+https://lnkd.in/dGRyJkwx
+@EVERYONE shall be eligible for pre-launch TOKEN AIRDROP #discord #airdrop #blockchain
+![image](https://github.com/saaarpmetaverse/social-media-posts/blob/main/9.jpg)
+
+

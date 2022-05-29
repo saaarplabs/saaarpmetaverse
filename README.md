@@ -1,5 +1,9 @@
 What is a good METAVERSE?
 The one that - OFFERS VALUE (makes money) DIRECTLY or — enhances value (increases money) INDIRECTLY - to COMMUNITY and builds sovereignty around it’s utility. #crpyto #metaverse #saaarpmetaverse #money #community
+![image](https://github.com/saaarpmetaverse/social-media-posts/blob/main/16.jpg)
+
+We are DECENTRALIZED COMMUNITY and token network secured by blockchain technology.
+#decentralized #blockchain #community
 ![image](https://github.com/saaarpmetaverse/social-media-posts/blob/main/1.jpg)
 
 We are building engaging DAPPS with a straightforward structure.

@@ -15,3 +15,11 @@ CONTENT USERS GET REWARDS for doing simple activities as viewing video, liking v
 
 As a CONTENT CREATOR, you can share your digital content - anything digital e.g., video, audio, music, images, podcasts, ebooks and or any digital assets etc. and GET REWARDED for it. #digital #share #content #music #video
 ![image](https://github.com/saaarpmetaverse/social-media-posts/blob/main/5.jpg)
+
+Building a
+DECENTRALIZED SOCIAL MEDIA NETWORK.
+Of the COMMUNITY,
+By the COMMUNITY,
+For the COMMUNITY.
+#communityfirst #community #socialmedia #network #building
+![image](https://github.com/saaarpmetaverse/social-media-posts/blob/main/6.jpg)

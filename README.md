@@ -34,5 +34,5 @@ https://lnkd.in/dGRyJkwx
 
 We are BUILDING, DECENTRALIZED SOCIAL MEDIA powered by DeFi, NFTs and WEB3
 Let’s to do away with centralized middlemen; SAAARP METAVERSE is building decentralized social media dapps powered by DeFi, NFTs and Web3 where “data of users and how users data are used are owned by users” #saaarpmetaverse #data #dapps #metavaerse #crypto #decentralized #socialmedia #defi #nfts #web3
-![image](https://github.com/saaarpmetaverse/social-media-posts/blob/main/14.jpg)
+![image](https://github.com/saaarpmetaverse/social-media-posts/blob/main/15.jpg)
 

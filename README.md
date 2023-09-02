@@ -32,4 +32,4 @@ https://lnkd.in/dGRyJkwx
 @EVERYONE shall be eligible for pre-launch TOKEN AIRDROP
 
 We are BUILDING, DECENTRALIZED SOCIAL MEDIA powered by DeFi, NFTs and WEB3
-Let’s to do away with centralized middlemen; SAAARP METAVERSE is building decentralized social media dapps powered by DeFi, NFTs and Web3 where “data of users and how users data are used are owned by users” 
+Let’s to do away with centralized middlemen; SAAARP LABS is building decentralized social media dapps powered by DeFi, NFTs and Web3 where “data of users and how users data are used are owned by users” 
